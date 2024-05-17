@@ -1,4 +1,7 @@
-### Hi there 👋
+### **Jose Rodolfo**
+### 3 ano B - Tecnologia
+![gif spfc](https://github.com/joserrrrrrr/joserrrrrrr/assets/170112850/da475671-0441-468b-8613-ec2bec3ce452)
+
 
 <!--
 **joserrrrrrr/joserrrrrrr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
